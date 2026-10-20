@@ -3,10 +3,16 @@
 
   <br>
   
-<img width="374" height="360" alt="scraps-scraps-dandys-world" src="https://github.com/user-attachments/assets/54d4c9cb-852a-4744-9316-01bcff82f862" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/c883cf16-f0d8-481b-92bd-0a81119b5962" />
+
 
 
 
 <br>
 
-<p align="center"><a href="https://github.com/AdiosT0reador">♡</p>
+ sign my <p align="center"><a href="https://creepyhorseeeexxx.atabook.org/">ata</p>
+
+ <br>
+
+ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/9d6d6907-06cb-4af6-a105-3942e7bf9fa3" />
+
